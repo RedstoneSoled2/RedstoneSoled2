@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RedstoneSoled2
-- 👀 I’m Currently studying cyber security at university
+- 👀 I’m Currently studying cyber security
 - 📫 Reach me on discord: Zeus2#0423
 
 <!---
